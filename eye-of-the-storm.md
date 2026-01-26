@@ -1,3 +1,14 @@
+
+# Eye of the Storm
+
+A Tavern Talk fanfic featuring the Neil Brume / Fable Verifina
+
+Shoutout to [@BluePirs](https://www.twitch.tv/bluepirs) for having me along on her playthrough of the game, during which I have come to adore these characters and the setting.
+
+Generally *low intimacy*, but your mileage may vary.
+
+---
+
 There was a small hill behind the Inn. Neil often walked there after hours, just to sit alone. He looked up at the sky, at the two bright points of light. The sun whale, and Tia. The new addition to the night sky hadn't been there for long. It was only a few months ago that all that craziness happened, with the undead army and the nightsky falling and -
 
 "Hey."
@@ -10,7 +21,7 @@ He thought for a second. Well, hesitated. He knew the answer but struggled to ve
 
 "I... I..."
 
-Fable *listened* to him like nobody else would, except maybe the Innkeeper. They understood him. They shuffled into him. Their head on his shoulder, hands grasped. He could feel them breathing, their heartbeat. They made him feel so comfortable. They looked at him, expectantly. The wind blew in his hair. By now, the sun had gone down. It was dark. He could see their breath mingling in the cool air, misting together. It caught in his throat. He felt their head move on his shoulder, like they were looking at him. It seemed the moment stretched on forever.
+Fable *listened* to him like nobody else would, except maybe the Innkeeper. They understood him. They shuffled into him. Their head on his shoulder, hands grasped. He could feel them breathing, their heartbeat. They made him feel so comfortable. The wind blew in his hair. By now, the sun had gone down. It was dark. He could see their breath mingling in the cool air, misting together. It caught in his throat. He felt their head move on his shoulder, like they were looking at him. It seemed the moment stretched on forever.
 
 "I love you, Neil."
 
