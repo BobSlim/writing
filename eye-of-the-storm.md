@@ -111,7 +111,7 @@ Some minutes went by, then he knocked again. The door opened, and Fable was ther
 
 "Hey. I-"
 
-Fable smiled, then lunged forward into a hug. Neil couldn't do anything but hug them back, his arms resting on her back. Fable broke it first, took a step back. Their eyes were puffy, their hair was messy. They looked down, ashamed, and held one arm with the other. Tearfully, they began "I'm sorry.."
+Fable smiled, then lunged forward into a hug. Neil couldn't do anything but hug them back, his arms resting on their back. Fable broke it first, took a step back. Their eyes were puffy, their hair was messy. They looked down, ashamed, and held one arm with the other. Tearfully, they began "I'm sorry.."
 
 "No, I'm sorry." Neil stepped forward, and kissed them on the forehead, and pressed their head against his chest. "Can I come in?"
 
@@ -135,7 +135,7 @@ Fable closed their eyes, focused on the sensation. Listened to the brush glide t
 
 "You don't." Neil wanted to end his sentence there. To be terse, to be vague, to be *closed off*. He couldn't. Not this time. "You make things so easy for me. Before, everything was always up in the air. Who I was, where I was, what I was doing, what I wanted. All I want now is..." He trailed off, and blushed.
 
-"I get it. You don't have to say anything you don't want to." Fable reached up to her cheek, and wiped away a tear.
+"I get it. You don't have to say anything you don't want to." Fable reached up to their cheek, and wiped away a tear.
 
 The braids were done. With nothing else to do with his hands, Neil wrapped his arms around Fable and laid back into the futon, pulling them with him. They laid like that for a bit. Then, almost out of nowhere, like he couldn't resist the words falling out of his lips, Neil blurted out "I want to be with you, Fable. That's it. Trust me."
 
