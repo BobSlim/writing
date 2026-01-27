@@ -128,7 +128,7 @@ He took a step forwards, then another. Then closed the door behind him, leaving 
 
 The cottage wasn't such an unknown place for Neil now. It was comfortable. He knew where things were. It was warm. It smelled like Fable. Their futon was spread out, bedsheets astray. They clearly hadn't had time to get ready for the morning. While he stood just inside the door, taking stock of the situation, Fable led him by the hand towards their futon. They sat on it, and pulled a blanket over their lap. "Could you brush my hair? If you want to?" Silently, Neil went through one of the nearby drawers and picked out a hairbrush. 
 
-He sat on a comfortable spot behind her, and started brushing their hair. Fable closed their eyes, focused on the sensation. Listened to it glide through their locks. Feeling the worries dissolve from their bones. Neil ran his fingers through the whole length, finding knots to untangle. It helped, having something to do. Then, he didn't have to think so hard. It helped also that they didn't have to look into each other's eyes while they did this little ritual. He couldn't afford to get lost in them again. "I like your hair."
+He sat on a comfortable spot behind them, and started brushing their hair. Fable closed their eyes, focused on the sensation. Listened to it glide through their locks. Feeling the worries dissolve from their bones. Neil ran his fingers through the whole length, finding knots to untangle. It helped, having something to do. Then, he didn't have to think so hard. It helped also that they didn't have to look into each other's eyes while they did this little ritual. He couldn't afford to get lost in them again. "I like your hair."
 
 "You do." Fable paused. "What do you like about it?"
 
