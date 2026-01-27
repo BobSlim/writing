@@ -1,7 +1,7 @@
 
 # Eye of the Storm
 
-A Tavern Talk fanfic featuring the Neil Brume / Fable Verifina
+A Tavern Talk fanfic featuring Neil Brume and Fable Verifina
 
 Shoutout to [@BluePirs](https://www.twitch.tv/bluepirs) for having me along on her playthrough of the game, during which I have come to adore these characters and the setting.
 
