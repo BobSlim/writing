@@ -7,6 +7,9 @@ Shoutout to [@BluePirs](https://www.twitch.tv/bluepirs) for having me along on h
 
 Generally *low intimacy*, but your mileage may vary.
 
+Updates:
+2026/01/27 - I thought Fable's dialogue was a little lacking, added more. Those scenes were too thin for being the "star of the show".
+
 ---
 
 There was a small hill behind the Inn. Neil often walked there after hours, just to sit alone. He looked up at the sky, at the two bright points of light. The sun whale, and Tia. The new addition to the night sky hadn't been there for long. It was only a few months ago that all that craziness happened, with the undead army and the nightsky falling and -
@@ -93,7 +96,7 @@ Melli paused for a second. "You", jabbing a finger at Neil's midsection "need to
 
 Melli strode off on a trot, following Fable's trail.
 
-Neil wasn't used to thinking about other people. For almost his whole adult life, it was just him. He needed to make things right. It's not some big evil monster, it was just them two. But he'd never felt such fear in his whole life. He could handle big evil monsters, but this was a whole new territory.
+Neil wasn't used to thinking about other people. For almost his whole life, it was just him. He needed to make things right. It's not some big evil monster, it was just them two. But he'd never felt such fear in his whole life. He could handle big evil monsters, but this was a whole new territory.
 
 ---
 
@@ -111,17 +114,85 @@ Some minutes went by, then he knocked again. The door opened, and Fable was ther
 
 "Hey. I-"
 
-Fable smiled, then lunged forward into a hug. Neil couldn't do anything but hug them back, his arms resting on their back. Fable broke it first, took a step back. Their eyes were puffy, their hair was messy. They looked down, ashamed, and held one arm with the other. Tearfully, they began "I'm sorry.."
+Fable smiled, then lunged forward into a hug. Neil couldn't do anything but catch them, his arms resting on their back. Fable looked up at him. Their eyes were puffy, their hair was messy. Tearfully, they began "I'm sorry..", and sobbed into Neil's chest. He didn't have any words for them, it took everything in him to not just bolt. He couldn't find the words in him, nothing that sounded real enough.
 
-"No, I'm sorry." Neil stepped forward, and kissed them on the forehead, and pressed their head against his chest. "Can I come in?"
+Muffled, Fable cried "I didn't know if you'd come back..." Neil felt the muscles around his heart start to cramp up. How could he have done this to them? Nothing made him run. Nothing but him, his own fear and insecurity.
 
-Almost in a whisper, still buried in his chest, Fable replied, "yeah.."
+"I'm here now. It's okay. You're fine. I'm here." It wasn't enough. He knew it wasn't enough, he knew that he wasn't enough. In a near whisper, he squeezed out "I'm sorry. I didn't mean to hurt you. I shouldn't have left you like that. I was so worried." Neil pressed them closer, kissed them on the crown of their head. There wasn't anything else he thought to say. They stood like that for a while, in the cold morning frost. Neil's shirt grew wet from tears, but still he didn't let go.
+
+Fable pulled away first, leaned back, looked him in the eyes. He couldn't look away. After the dragon's influence, their eyes sparkled like opals in moonlight. They took a step back towards the door, opened it, and stepped just inside the jamb. Neil stood still, unsure of what to do. Still shakey from the crying, and hesitant, Fable invited Neil "Do you want to come in?"
+
+He took a step forwards, then another. Then closed the door behind him, leaving behind the cold.
 
 ---
 
-The cottage wasn't such an unknown place for Neil now. It was comfortable. He knew where things were. He led Fable to the laid out futon, bedsheets still astray. Fable sat on the futon, and pulled a blanket over themselves. Neil went through one of the nearby drawers, and picked out a hairbrush, started brushing their hair.
+The cottage wasn't such an unknown place for Neil now. It was comfortable. He knew where things were. It was warm. It smelled like Fable. Their futon was spread out, bedsheets astray. They clearly hadn't had time to get ready for the morning. While he stood just inside the door, taking stock of the situation, Fable led him by the hand towards their futon. They sat on it, and pulled a blanket over their lap. "Could you brush my hair? If you want to?" Silently, Neil went through one of the nearby drawers and picked out a hairbrush. 
 
-Fable closed their eyes, focused on the sensation. Listened to the brush glide through their hair, taking the worries from their bones as well as the knots from their hair. "I've always admired your hair. It's perfect. I enjoy helping you keep it that way." Neil started braiding it, too. One of their little rituals. Their symbol, their promise.
+He sat on a comfortable spot behind her, and started brushing their hair. Fable closed their eyes, focused on the sensation. Listened to it glide through their locks. Feeling the worries dissolve from their bones. Neil ran his fingers through the whole length, finding knots to untangle. It helped, having something to do. Then, he didn't have to think so hard. It helped also that they didn't have to look into each other's eyes while they did this little ritual. He couldn't afford to get lost in them again. "I like your hair."
+
+"You do." Fable paused. "What do you like about it?"
+
+Fable could feel Neil hesitating. Thinking about his next words, carefully. The brush, still midway through a stroke, slowly dropping strands as it's movement was arrested. "How it feels." Neil continued to brush, and Fable waited. He had other things to say, he just needed some time. "How it glows in the sun. How it smells." Neil closed his eyes, thinking hard. Being in the moment. "How I know it's you from a mile away. How I'm reminded of you when I find one of your hairs in my things." Fable blushed. He'd not complimented them so freely before, in such rapid succession. "How you can't get it all into your hat, no matter how hard you try."
+
+"You like that?"
+
+"Yeah." A pause, again. A blush, on both sides. "It's cute." A silence, again. Neil ran his fingers through their hair, again. Enjoyed how it fell through them like water.
+
+Fable let out some of the breath they had been holding onto, and leaned back into Neil, looking at him from below. "Do you want to know what I like about you?" Neil tried to look at anything else in the room. His face darkened with the blood running through it. "No...?" He averted his gaze. He couldn't take much more.
+
+"Okay. Gimme that.." Fable grabbed the brush, long since dropped onto the mattress, and shuffled behind Neil. "Your turn now. An eye for an eye and all that." Neil couldn't deny it. It was fair.
+
+They undid the knot that Neil had his hair in most of the time. They ruffled it, so it flowed down Neil's back. They, too, ran their fingers through it, looking for knots. "You've never let me do your hair before." A statement. Or an accusation? Hard to tell, in these circumstances. Neil, without anything else to fidget with, started picking lint off the bedsheets.
+
+"You never asked."
+
+Fable paused. "You could've asked me to." They started brushing. "Do you like it?"
+
+"I do. It's nice." Neil understated. He shuddered with pleasure as his hair was gently tugged, his scalp tingling. The brush tickled his back. He wasn't used to people touching him, in a pleasant, non-violent way. In a caring way.
+
+"When I was young, I used to do my brother's hair. He would scream when I combed out his tangles. I pulled too hard, I was a kid. He would let me braid it and tie it into ponytails and pigtails, and put ribbons and glitter in it." Neil stopped fidgeting. He hadn't heard this story before. "Eventually, he got into a fight at school about it. Some kid told him his hair sucked, so he punched them. Told them, 'Never make fun of Fable!' After that, my parents didn't let me do it anymore. We didn't talk as much after that."
+
+Fable brushed and brushed and wondered at the expanse of hair that Neil tucked into a tight bun. "You have beautiful hair too. I think you'd look pretty with it down."
+
+"It's less practical."
+
+"It's not like we're going adventuring every day. Seems like things have calmed down a little. You should try it." Neil chuckled. "Really, I'm serious!" Fable smacked his shoulder, playfully.
+
+"I'll think about it."
+
+Satisfied with their work, Fable returned to the other side of Neil, and sat facing him. "Can I tell you now? What I like about you?"
+
+Neil learned forward slightly, bobbed his chin down in a short nod. A quiet acceptance of whatever they decided to bequeath upon him.
+
+"I like... well, a lot of things! But let's start somewhere. I like how kind you are. I like how you listen to little things about people, and file them away into the back of your mind, and then you just come out and do things for them. You don't ask for a lot, but you give so much." Fable smiled, their words taking an effect on Neil. He shrunk down, each of their words feeling like an attack on the cold, stoic, mysterious persona he'd cultivated over so many years. "I like how shy you are. I like how you try so hard." Fable shuffled slightly closer, such that their knees touched. They spoke in a lower hushed tone, an intimate register. "I like... I like how much you care for me. But I wish you'd let me care for you too."
+
+Fable reached out, took a small portion of Neil's hair from the right side, and began a small braid. "You love it when I touch your hair like this. But you've never asked me to." Almost a whisper, now. "How much else is there that I could do, that you're not telling me?"
+
+Neil did the same with Fable's hair, on the opposite side. Their eyes were in view, but he could focus on something else, even as he could tell they watered with tears. "You don't need to do anything."
+
+"But I **want** to. I want you to be happy."
+
+"I am happy."
+
+"Then what's wrong?!"
+
+Neil didn't know what to say. "Fable... I... Are you happy?" Neil waited for an answer, but none came. Fable was biting their lip, struggling not to burst out in tears. "You... you don't deserve me."
+
+"What?!" Anger. Frustration. "What does **that** mean?!"
+
+"I mean..." Neil took a breath, closed his eyes. "I like being around you. I need to return the favour."
+
+Their look softened. "Neil... I feel the same way. I feel like you do so much for me, you give and give and give, like I'm sucking you dry. I hate feeling like that, like I'm a burden. I've never been good for anything anyway, so how could I be good in this? In..."
+
+"You are good at this. Whatever this is. You're amazing, Fable."
+
+"Then... why..."
+
+"I'm scared. Scared you'll see who I am, scared you'll realise that you could do so much better. Scared I'll lose you."
+
+"I want **you**!! Nobody else on this world is anything like you!" Their tears flowed again.
+
+"Then you can have me." A whisper, an undercurrent. Neil leaned forward, tenderly pulled Fable into a hug. Patted them on the back. They couldn't help but cry again. Loudly, in fits of sobs. "I'm sorry, Fable. I don't want to make you cry. I'm not going anywhere." He tightened the hug. "I'm here."
 
 "You're always so gentle with me. It's like you're afraid you'll break me."
 
@@ -133,22 +204,20 @@ Fable closed their eyes, focused on the sensation. Listened to the brush glide t
 
 "I didn't mean to make things hard."
 
-"You don't." Neil wanted to end his sentence there. To be terse, to be vague, to be *closed off*. He couldn't. Not this time. "You make things so easy for me. Before, everything was always up in the air. Who I was, where I was, what I was doing, what I wanted. All I want now is..." He trailed off, and blushed.
+"You don't." Neil wanted to end his sentence there. To be terse, to be vague, to be *closed off*. He couldn't. Not this time. "You make things so easy. Everything used to always be up in the air. Who I was, where I was, what I was doing, what I wanted. All I want now is..." He trailed off. It was too much to handle. 
 
-"I get it. You don't have to say anything you don't want to." Fable reached up to their cheek, and wiped away a tear.
+He breathed out, a heavy breath, then positioned himself to be sitting behind Fable, again. He began braiding their hair, from the back. They sat in silence for a bit, with just hair between them. Neil hummed a tune, one that Fable was unfamiliar with. It seemed the cottage was filled with this calming melody, and Fable focused on it, with their eyes closed. Focused on the sound, on the feel of Neil's hands folding hair over hair. The braids were done. With nothing else to do with his hands, Neil wrapped his arms around Fable and laid back into the futon, pulling them with him. They laid like that for a bit. 
 
-The braids were done. With nothing else to do with his hands, Neil wrapped his arms around Fable and laid back into the futon, pulling them with him. They laid like that for a bit. Then, almost out of nowhere, like he couldn't resist the words falling out of his lips, Neil blurted out "I want to be with you, Fable. That's it. Trust me."
+"I want to be with you, Fable."
 
-Fable couldn't stop themselves from crying. Neil, too. At some point, it turned into laughter, from the emotional release, the ecstacy of connection. They found themselves face to face, foreheads almost touching, hands caressing the other's cheek. Fable's scales under Neil's hand, and Neil's tattoo being traced by Fable's fingertip.
+Fable couldn't cry anymore. Instead, they laughed. They laughed together, until their bellies ached and their eyes streamed with what little tears were left to give. They rolled and crawled on the futon as they laughed, and eventually they settled. They found themselves face to face, foreheads almost touching, hands caressing the other's cheek. Fable's scales under Neil's hand, and Neil's tattoo being traced by Fable's fingertip.
 
 ---
 
 Neil was in the small kitchenette, overlooking Fable. They had both decided to get a few extra hours of sleep. He just woke a little earlier. Being as quiet as he possibly could (which he was well trained to do), he brought out a kettle, two mugs, and the prototype Instant Quincy's Hot Chocolate mix that the Innkeeper had given them to try out. He set the kettle on the magical stove to boil, and spooned some amount into each mug. He watched Fable breathe deeply as they slept. 
 
-When the kettle finished, Neil poured the water into the mugs, stirred them. The smell was just like having a fresh one made at the Inn. Fable opened their eyes, and wiped the sleep from them. "You made hot chocolate." They smiled.
+When the kettle finished, Neil poured the water into the mugs, stirred them. The smell was just like having a fresh one made at the Inn. Fable opened their eyes, and wiped the sleep from them. "You made hot chocolate." They smiled. Neil brought the mugs to the small table by the window, had a seat, and took a sip. Tastes pretty much the same, too. Warming. Comfortable. He stared out the window, at the Wayfarer's Inn. Somehow, that place had brought so many of them together. He'd have to thank the Innkeeper properly some time.
 
-Neil brought the mugs to the small table by the window, had a seat, and took a sip. Tastes pretty much the same, too. Warming. Comfortable. He stared out the window, at the Wayfarer's Inn. Somehow, that place had brought so many of them together. He'd have to thank the Innkeeper properly some time.
-
-Fable joined him at the chair opposite and took a sip from the other mug. "It's good. It's exactly like the Innkeeper makes it." Neil nodded, in appreciation and agreement. They sat, drinking their hot chocolates and watching each other. It was an easy, lazy, late morning, in comparison to the turmoil of last night. Neil felt his shoulders fall and relax, but felt himself blushing. It was like there was something bubbling directly up from his vocal chords, something he couldn't stop. It wasn't like he wanted to stop it, anyway.
+Fable joined him at the chair opposite and took a sip from the other mug. "It's good. It's exactly like the Innkeeper makes it." Neil nodded, in appreciation and agreement. They sat, drinking their hot chocolates and watching each other. It was an easy, lazy, late morning, in comparison to the turmoil that was just had. Neil felt his shoulders fall and relax, but felt himself blushing. It was like there was something bubbling directly up from his vocal chords, something he couldn't stop. It wasn't like he wanted to stop it, anyway.
 
 "I love you too."
