@@ -28,7 +28,7 @@ Fable *listened* to him like nobody else would, except maybe the Innkeeper. They
 
 "I love you, Neil."
 
-He stood up. Fable fell to the ground, catching themselves. He was shaking, and he wasn't sure why. He couldn't stop it. They shook, too. The way they looked up at Neil. Confused. Maybe hurt. He looked away, quickly. He couldn't take it. Neil stood there, frozen in shock and fear and whatever else was in his system. 
+He stood up. Fable fell to the ground, catching themselves. He was shaking, and he wasn't sure why. He couldn't stop it. They shook, too. The way they looked up at Neil. Confused. Maybe hurt. He looked away, quickly. He couldn't take it. Neil stood there, frozen in shock and fear and whatever else was in his system.
 
 He ran.
 
@@ -92,7 +92,7 @@ He recounted the events of last night. Melli kept herself busy with looking arou
 
 "What should we do?"
 
-Melli paused for a second. "You", jabbing a finger at Neil's midsection "need to go talk to them. Come, let's go!" 
+Melli paused for a second. "You", jabbing a finger at Neil's midsection "need to go talk to them. Come, let's go!"
 
 Melli strode off on a trot, following Fable's trail.
 
@@ -126,9 +126,9 @@ He took a step forwards, then another. Then closed the door behind him, leaving 
 
 ---
 
-The cottage wasn't such an unknown place for Neil now. It was comfortable. He knew where things were. It was warm. It smelled like Fable. Their futon was spread out, bedsheets astray. They clearly hadn't had time to get ready for the morning. While he stood just inside the door, taking stock of the situation, Fable led him by the hand towards their futon. They sat on it, and pulled a blanket over their lap. "Could you brush my hair? If you want to?" Silently, Neil went through one of the nearby drawers and picked out a hairbrush. 
+The cottage wasn't such an unknown place for Neil now. It was comfortable. He knew where things were. It was warm. It smelled like Fable. Their futon was spread out, bedsheets astray. They clearly hadn't had time to get ready for the morning. While he stood just inside the door, taking stock of the situation, Fable led him by the hand towards their futon. They sat on it, and pulled a blanket over their lap. "Could you brush my hair? If you want to?" Silently, Neil went through one of the nearby drawers and picked out a hairbrush.
 
-He sat on a comfortable spot behind them, and started brushing their hair. Fable closed their eyes, focused on the sensation. Listened to it glide through their locks. Feeling the worries dissolve from their bones. Neil ran his fingers through the whole length, finding knots to untangle. It helped, having something to do. Then, he didn't have to think so hard. It helped also that they didn't have to look into each other's eyes while they did this little ritual. He couldn't afford to get lost in them again. "I like your hair."
+He sat on a comfortable spot behind her, and started brushing their hair. Fable closed their eyes, focused on the sensation. Listened to it glide through their locks. Feeling the worries dissolve from their bones. Neil ran his fingers through the whole length, finding knots to untangle. It helped, having something to do. Then, he didn't have to think so hard. It helped also that they didn't have to look into each other's eyes while they did this little ritual. He couldn't afford to get lost in them again. "I like your hair."
 
 "You do." Fable paused. "What do you like about it?"
 
@@ -204,9 +204,9 @@ Their look softened. "Neil... I feel the same way. I feel like you do so much fo
 
 "I didn't mean to make things hard."
 
-"You don't." Neil wanted to end his sentence there. To be terse, to be vague, to be *closed off*. He couldn't. Not this time. "You make things so easy. Everything used to always be up in the air. Who I was, where I was, what I was doing, what I wanted. All I want now is..." He trailed off. It was too much to handle. 
+"You don't." Neil wanted to end his sentence there. To be terse, to be vague, to be *closed off*. He couldn't. Not this time. "You make things so easy. Everything used to always be up in the air. Who I was, where I was, what I was doing, what I wanted. All I want now is..." He trailed off. It was too much to handle.
 
-He breathed out, a heavy breath, then positioned himself to be sitting behind Fable, again. He began braiding their hair, from the back. They sat in silence for a bit, with just hair between them. Neil hummed a tune, one that Fable was unfamiliar with. It seemed the cottage was filled with this calming melody, and Fable focused on it, with their eyes closed. Focused on the sound, on the feel of Neil's hands folding hair over hair. The braids were done. With nothing else to do with his hands, Neil wrapped his arms around Fable and laid back into the futon, pulling them with him. They laid like that for a bit. 
+He breathed out, a heavy breath, then positioned himself to be sitting behind Fable, again. He began braiding their hair, from the back. They sat in silence for a bit, with just hair between them. Neil hummed a tune, one that Fable was unfamiliar with. It seemed the cottage was filled with this calming melody, and Fable focused on it, with their eyes closed. Focused on the sound, on the feel of Neil's hands folding hair over hair. The braids were done. With nothing else to do with his hands, Neil wrapped his arms around Fable and laid back into the futon, pulling them with him. They laid like that for a bit.
 
 "I want to be with you, Fable."
 
@@ -214,7 +214,7 @@ Fable couldn't cry anymore. Instead, they laughed. They laughed together, until 
 
 ---
 
-Neil was in the small kitchenette, overlooking Fable. They had both decided to get a few extra hours of sleep. He just woke a little earlier. Being as quiet as he possibly could (which he was well trained to do), he brought out a kettle, two mugs, and the prototype Instant Quincy's Hot Chocolate mix that the Innkeeper had given them to try out. He set the kettle on the magical stove to boil, and spooned some amount into each mug. He watched Fable breathe deeply as they slept. 
+Neil was in the small kitchenette, overlooking Fable. They had both decided to get a few extra hours of sleep. He just woke a little earlier. Being as quiet as he possibly could (which he was well trained to do), he brought out a kettle, two mugs, and the prototype Instant Quincy's Hot Chocolate mix that the Innkeeper had given them to try out. He set the kettle on the magical stove to boil, and spooned some amount into each mug. He watched Fable breathe deeply as they slept.
 
 When the kettle finished, Neil poured the water into the mugs, stirred them. The smell was just like having a fresh one made at the Inn. Fable opened their eyes, and wiped the sleep from them. "You made hot chocolate." They smiled. Neil brought the mugs to the small table by the window, had a seat, and took a sip. Tastes pretty much the same, too. Warming. Comfortable. He stared out the window, at the Wayfarer's Inn. Somehow, that place had brought so many of them together. He'd have to thank the Innkeeper properly some time.
 
