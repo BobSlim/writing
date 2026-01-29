@@ -10,4 +10,5 @@ Generally *low intimacy*, but your mileage may vary.
 
 ## Chapters
 
-- [Chapter 1](01)
+- [Chapter 1 - Tempest](01)
+- [Chapter 2 - Fable's Cottage](02)
